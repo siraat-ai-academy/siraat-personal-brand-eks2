@@ -1,4 +1,4 @@
-# 🌸✨ Muhammad Naveed Ishaque — Eks2 Skill Sets — Crafted with Clarity & Care 🌼🧚‍♀️
+# 🌸✨ Muhammad Naveed Ishaque (Eks2) — Skill Sets — Crafted with Clarity & Care 🌼🧚‍♀️
 
 Welcome to my skill garden — where every ability blooms with purpose, softness, and a touch of spring magic.
 
