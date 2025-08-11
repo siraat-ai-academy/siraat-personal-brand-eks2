@@ -4,7 +4,7 @@ Welcome to my skill garden — where every ability blooms with purpose, softness
 
 ---
 
-## 📌 **Top Priority Skills** (Pinned for impact)
+## 📌 **Top Priority Skills**
 
 ### 🌷 Content Strategy  
 Designing purposeful, audience-focused content plans that align with brand voice and goals. Each piece connects, informs, and inspires.
@@ -32,7 +32,7 @@ Designing resources and strategies to make learning accessible across English, D
 
 ---
 
-## 🌟 **Extra / Support Skills** (Depth & Dimension)
+## 🌟 **Extra / Support Skills**
 
 ### 🍎 Teaching  
 Delivering engaging lessons with empathy and cultural awareness.
